@@ -1,4 +1,4 @@
-# $${\color{red}swasfu}$$ 
+# $${\color{red}s\color{orange}w\color{yellow}a\color{green}s\color{blue}f\color{purple}u}$$ 
 monkey dancer, peace maker, lover
 
 
